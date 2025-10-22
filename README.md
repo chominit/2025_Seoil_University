@@ -1,1 +1,1 @@
-# 2025_Seoil_University
+# 2025_Ph.d.졸업하고싶어요.
